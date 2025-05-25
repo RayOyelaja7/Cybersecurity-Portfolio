@@ -1,2 +1,2 @@
 # Cybersecurity-Portfolio
-A portfolio for showcasing my progress and achievements in cybersecurity  
+A Portfolio for showcasing my progress 📈🧗🏾‍♂️ and achievements 🥇🏆 in Cybersecurity  
